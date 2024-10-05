@@ -1,3 +1,5 @@
+<p align="center"><img src="https://64.media.tumblr.com/070b266a3fc5c69569e479b63c4782fe/294601951aa6d011-1e/s400x600/d36addbf4aba7e9119c9a4721023b80bb3844fcd.gif" alt="image"/>![image](https://github.com/user-attachments/assets/6dbeb613-7a13-4192-811b-d59c70a77402)</p>
+
 <p align="center">PLEASE C+H! ITS GLADLY WELCOMED! ALTHOUGH IF IM ALREADY W A FRIEND AND I DUNNO U IT MAY BE A LIL AWKWARD....</p>
 
 <p align="center">please do whisp me to int. im usually offtab..sorry!</p>
