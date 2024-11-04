@@ -6,7 +6,7 @@
 
 <p align="center">lmk if u wanna be frens^_^ i love love making em!</p>
 
-<p align="center">(https://rentry.co/midnighthorrors)</p>
+<p align="center">(https://rentry.co/icedtea)</p>
 
 <p align="center">read my rentry for more info abt me.. its p important i guess..</p>
 
