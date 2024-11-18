@@ -4,7 +4,7 @@
 
 <p align="center">please do whisp me to int. im usually offtab..sorry!</p>
 
-<p align="center">my rentry is a wip ooppsss</p>
+<p align="center">https://rentry.co/kasp</p>
 
 <p align="center">read my rentry for more info abt me.. its p important i guess..</p>
 
