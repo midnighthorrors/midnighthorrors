@@ -12,5 +12,5 @@
 
 <p align="center"> https://swordtistic.straw.page/ my strawpage if u wanna send me stuff just note i only respond on my twt lol</p>
 
-<p align="center">sorry im anxious and im not exactly interested in making new friends most of the time , but u can shoot ur shotttt aauh/p>
+<p align="center">sorry im anxious and im not exactly interested in making new friends most of the time , but u can shoot ur shotttt aauh</p>
 
