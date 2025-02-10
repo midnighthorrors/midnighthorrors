@@ -2,7 +2,7 @@
 
 <p align="center">I'd prefer if you whisper me when you interact, i'm usually offtab.</p>
 
-<p align="center">https://rentry.co/kasp</p>
+<p align="center">https://rentry.co/cosmicbrownie</p>
 
 <p align="center">my rentry has more stuff about me that is important to know I suppose</p>
 
