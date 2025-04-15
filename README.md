@@ -6,7 +6,7 @@
 
 <p align="center">my rentry has more stuff about me that is important to know I suppose</p>
 
-<p align="center"> https://swordtistic.straw.page/ my strawpage if you wanna send me stuff just note i only respond on my twt</p>
+<p align="center"> https://swordtistic.straw.page/ my strawpage! say anything.</p>
 
 <p align="center">If my pony is moving around out of nowhere but im unresponisve it's my cat laying down on my keyboard. I apologize in advance.</p>
 
