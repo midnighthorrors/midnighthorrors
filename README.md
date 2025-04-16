@@ -1,4 +1,4 @@
-<p align="center">c+h is welcome to everyone. don't be shy.</p>
+<p align="center">im 18.c+h is welcome to everyone. don't be shy.</p>
 
 <p align="center">I'd prefer if you whisper me when you interact, i'm usually offtab.</p>
 
