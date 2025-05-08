@@ -8,5 +8,5 @@
 
 <p align="center"> https://swordtistic.straw.page/ my strawpage! say anything.</p>
 
-<p align="center">If my pony is moving around out of nowhere but im unresponisve it's my cat laying down on my keyboard. I apologize in advance.</p>
+<p align="center">I am so ill and shy god pls iwc. dont be afraid to ask to add me but i may be reserved ,, pls dont leave me out if avoidable</p>
 
